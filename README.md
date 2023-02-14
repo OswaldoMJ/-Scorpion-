@@ -9,4 +9,4 @@ Esta serie es uno de los que en el momento me llego a gustar demasiado ya que fu
 https://www.paramountplus.com/shows/scorpion/
 
 [^1] : Una serie muy recomendable.
-[^2] : Para ver con toda la familia.
+[^2] : Para ver con toda la familia. 
